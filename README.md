@@ -5,7 +5,7 @@ APP地址：http://t.cn/AiQMAA0Y
 
 ML多功能聚合 邀请码578578  编号2
 支持抖音刷主播跑车福利
-地址：http://ff.yyrdv.cn/index.php/duo/1464（浏览器打开）
+地址：http://ff.yyrdv.cn/index.php/duo/1464
 官网：ml22.top
 
 Anna直播盒子 邀请码578578  编号3
